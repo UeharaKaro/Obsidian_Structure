@@ -1,0 +1,2 @@
+# Obsidian_Structure
+Same
